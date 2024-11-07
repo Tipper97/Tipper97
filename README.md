@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate and improve my skills on tradimg  
 - 📫 How to reach me patrickmathias0907@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: total broke but happy since am in
+- ⚡ Fun fact: total broke💎
 
 <!---
 Tipper97/Tipper97 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
